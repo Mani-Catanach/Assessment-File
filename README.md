@@ -1,1 +1,1 @@
-Slurp Slurp. I finish cleaning the remains of my late night horn sesh when i heard a rap on the window. I looked out and saw owl from winnie the pooh. He screeched "YOU DIRTY LITTLE BOY. NO. NO BACK TO YOUR CORNER."
+YOU BAD
